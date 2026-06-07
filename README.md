@@ -1,4 +1,4 @@
-Does PROGRAMMING was so HARD? Ans: !yes
+Aspiring ML/AI EngiNERD
 
 <!---
 Saxbyy/Saxbyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
